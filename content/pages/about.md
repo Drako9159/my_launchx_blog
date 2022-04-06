@@ -13,9 +13,10 @@ Hola, aquí vas a leer un poco sobre mi 🤩
 > adfusique imis amplexus. Agmina per fabricator
 > mittere Erymanthon habetque tot.
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
+**¿Quién soy?** la única pregunta que no deja de ser complicada con el tiempo.
+ Tengo 25 años y mi hambre por aprender cosas nuevas sigue siendo la un niño de 5,
+ me gusta provoar placer con el mejor medio que es la comida. 
+ La lectura nunca estuvo tan presente en vida como hasta hace 3 años, ningún manual se me escapa.
+ Sigo tratando de ignorar menos y la universidad ha sido clave, estudio Ingenieria en Sistema.
+ Desde pequeño me ha interesado la electrónica, luego me di cuenta que todo funcina mejor con un sistema y el software el cerebro de todo.
 
